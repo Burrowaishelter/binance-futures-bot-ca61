@@ -1,4 +1,4 @@
-# 
+# binance futures bot instant Bot - take-profit and perpetual-trading offers the most advanced binance futures bot, with take-profit and perpetual-trading. Ideal for professional
 
 
 
